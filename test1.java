@@ -1,6 +1,14 @@
 void()
 {
 	adnbcbcb
-	hefdjjdj
-	hdghfdf
+	hefd
 }	
+
+hfghfh
+fhhf
+
+
+{
+
+	dhghdh
+}
