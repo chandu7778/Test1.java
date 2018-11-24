@@ -1,0 +1,6 @@
+void()
+{
+	adnbcbcb
+	hefdjjdj
+	hdghfdf
+}	
